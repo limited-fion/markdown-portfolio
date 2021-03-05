@@ -1,1 +1,1 @@
-https://www.linkedin.com/in/fion-foo/
+[LinkedIn](https://www.linkedin.com/in/fion-foo/)
